@@ -1,0 +1,34 @@
+# Indiginus Acoustic Guitar Collection Remix KONTAKTrel: A New Add-on for Acoustic Guitar Lovers
+ 
+If you are a fan of acoustic guitar sounds and you already own the Acoustic Guitar Collection library from Indiginus, you might be interested in their new add-on: Acoustic Guitar Collection Remix KONTAKTrel. This add-on adds some new features and enhancements to the original library, such as:
+ 
+**DOWNLOAD ►►► [https://t.co/yclzrltW3G](https://t.co/yclzrltW3G)**
+
+
+ 
+- Hammer-Ons: You can now play realistic hammer-ons by pressing a keyswitch and then playing a note higher than the previous one.
+- Releases: You can now control the release volume and length of each note with the mod wheel or a MIDI CC of your choice.
+- Auto-Vibrato: You can now add natural vibrato to your notes by holding them for a certain amount of time. The vibrato speed and depth are adjustable.
+- Guitar Body Impulse Responses: You can now choose from different guitar body impulse responses to change the tone and resonance of your guitar sound.
+
+The user interface has also been updated and will be familiar to owners of Indiginus' more recent guitar libraries. You can easily access all the parameters and options from the main screen, as well as switch between different articulations and playing modes.
+ 
+The add-on is only 50 MB in size and costs $10 USD. You need to have the full version of Kontakt 5.8 or higher and the Acoustic Guitar Collection library to use it. You can download it from Indiginus' website[^1^].
+ 
+If you are looking for a way to spice up your acoustic guitar tracks with some new features and sounds, you might want to check out Acoustic Guitar Collection Remix KONTAKTrel. It is a great addition to an already excellent library.
+
+Acoustic Guitar Collection Remix KONTAKTrel is not the only add-on that Indiginus offers for their guitar libraries. They also have Electric Guitar Collection Remix and Bluegrass Banjo Remix, which add similar features and enhancements to their respective libraries. These add-ons are also compatible with Kontakt 5.8 or higher and cost $10 USD each.
+ 
+Indiginus is a company that specializes in creating realistic and expressive guitar libraries for Kontakt. They have a wide range of products, from acoustic and electric guitars to mandolins and ukuleles. Their libraries are designed to be easy to use and flexible, allowing you to create authentic guitar parts for any genre of music. You can find more information about their products on their website.
+ 
+If you are a guitar enthusiast or a music producer who needs high-quality guitar sounds for your projects, you should definitely check out Indiginus' libraries and add-ons. They are affordable, versatile and fun to play with. You will not regret it.
+
+One of the advantages of Indiginus' guitar libraries and add-ons is that they are compatible with each other. You can mix and match different sounds and features to create your own custom guitar patches. For example, you can use the guitar body impulse responses from Acoustic Guitar Collection Remix on the Electric Guitar Collection library, or use the hammer-ons feature from Electric Guitar Collection Remix on the Bluegrass Banjo library. The possibilities are endless.
+ 
+Indiginus AGC Remix Kontakt library download,  How to use Indiginus Acoustic Guitar Collection with StrumMaker III,  Indiginus Acoustic Guitar Collection Remix review and demo,  Best acoustic guitar samples for Kontakt by Indiginus,  Indiginus AGC Remix LE free download,  Indiginus Acoustic Guitar Collection Remix vs Acoustic Guitar Collection,  Indiginus AGC Remix Kontakt instrument walkthrough,  Indiginus Acoustic Guitar Collection Remix system requirements,  Indiginus Acoustic Guitar Collection Remix coupon code and discount,  Indiginus Acoustic Guitar Collection Remix user guide and manual,  Indiginus AGC Remix Kontakt serial number and activation,  Indiginus Acoustic Guitar Collection Remix sound quality and realism,  Indiginus AGC Remix Kontakt tips and tricks,  Indiginus Acoustic Guitar Collection Remix compatibility and updates,  Indiginus AGC Remix Kontakt alternative and similar products,  Indiginus Acoustic Guitar Collection Remix features and specifications,  Indiginus AGC Remix Kontakt installation and setup,  Indiginus Acoustic Guitar Collection Remix customer support and feedback,  Indiginus AGC Remix Kontakt price and value for money,  Indiginus Acoustic Guitar Collection Remix pros and cons,  Indiginus AGC Remix Kontakt tutorial and video,  Indiginus Acoustic Guitar Collection Remix genres and styles,  Indiginus AGC Remix Kontakt performance and CPU usage,  Indiginus Acoustic Guitar Collection Remix presets and patches,  Indiginus AGC Remix Kontakt customisation and editing,  Indiginus Acoustic Guitar Collection Remix refund policy and guarantee,  Indiginus AGC Remix Kontakt license and terms of use,  Indiginus Acoustic Guitar Collection Remix testimonials and ratings,  Indiginus AGC Remix Kontakt comparison and contrast,  Indiginus Acoustic Guitar Collection Remix benefits and advantages,  Indiginus AGC Remix Kontakt problems and solutions,  Indiginus Acoustic Guitar Collection Remix FAQ and Q&A,  Indiginus AGC Remix Kontakt forum and community,  Indiginus Acoustic Guitar Collection Remix inspiration and ideas,  Indiginus AGC Remix Kontakt history and background,  Indiginus Acoustic Guitar Collection Remix bonus and extras,  Indiginus AGC Remix Kontakt best practices and recommendations,  Indiginus Acoustic Guitar Collection Remix limitations and drawbacks,  Indiginus AGC Remix Kontakt case studies and examples,  Indiginus Acoustic Guitar Collection Remix news and updates,  Indiginus AGC Remix Kontakt challenges and opportunities,  Indiginus Acoustic Guitar Collection Remix trends and statistics,  Indiginus AGC Remix Kontakt fun facts and trivia,  Indiginus Acoustic Guitar Collection Remix myths and misconceptions,  Indiginus AGC Remix Kontakt secrets and hacks,  Indiginus Acoustic Guitar Collection Remix success stories and testimonials
+ 
+Another advantage of Indiginus' guitar libraries and add-ons is that they are very responsive and expressive. You can control various aspects of the sound with your keyboard, such as velocity, pitch bend, mod wheel, keyswitches and MIDI CCs. You can also use your own MIDI controller or guitar to play them via MIDI guitar mode. This way, you can achieve realistic and natural guitar performances that suit your musical style and mood.
+ 
+Indiginus' guitar libraries and add-ons are some of the best guitar products available for Kontakt. They are suitable for beginners and experts alike, and they will enhance your music production with their quality and versatility. Whether you need acoustic or electric guitars, banjos or mandolins, Indiginus has something for you.
+ 8cf37b1e13
+ 
